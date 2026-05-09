@@ -19,4 +19,4 @@ dan intensitas yang berlebihan menekan produktivitas akademik.
 - Penelitian Kuantitatif
 
 ## 📄 Artikel
-[Baca Artikel Lengkap](ARTIKEL%20STATISTIKA%20ANALISIS%20HUBUNGAN%20ANTARA%20FEAR%20OF%20MISSING%20OUT(FOMO)%20DAN%20PRODUKTIVITAS%20BELAJAR%20DI%20KALANGAN%20GEN%20Z.pdf)
+[Baca Artikel Lengkap](https://drive.google.com/file/d/1OoI9oXuh-m9flts5UU8OmE9qf-HwtRhG/view?usp=sharing)
